@@ -1,0 +1,1 @@
+# LuisEduardoMeneghelPercicotiDeLima_Atividade02_JavaScriptPleno
